@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Kanihey
+- 👀 I’m interested in seafoods and Japanese language.
+- 🌱 I’m currently learning seafoods and rap and Wordpress.
+- 💞️ I’m looking to collaborate on DJ.
